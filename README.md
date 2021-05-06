@@ -7,7 +7,7 @@ UC Berkeley Alumni with in interest in designs, UI/UX, and data analysis.
 
 Check me out on:
 
-Linkedin: linkedin.com/in/nguyen98 !
+Linkedin: www.linkedin.com/in/nguyen98 
 
 Art: https://www.instagram.com/fofographs/
 
