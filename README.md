@@ -5,7 +5,9 @@ UC Berkeley Alumni with in interest in designs, UI/UX, and data analysis.
 
 📖 Currently Reading: Norwegian Wood
 
-Check me out on linkedin.com/in/nguyen98 !
+Check me out on:
+
+Linkedin: linkedin.com/in/nguyen98 !
 
 Art: https://www.instagram.com/fofographs/
 
