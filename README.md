@@ -1,8 +1,11 @@
-- 👋 Hi, I’m @fofoforever
-- 👀 I’m interested in data science, UI/UX, marketing
-- 🌱 I’m currently learning longboarding, snowboarding, anything boarding. 
-- 💞️ I’m looking to collaborate on designs and data analysis.
-- 📫 How to reach me linkedin.com/in/nguyen98
+Hi, I’m @fofoforever
+UC Berkeley Alumni with in interest in designs, UI/UX, and data analysis. 
+I’m currently learning longboarding, snowboarding, anything boarding. 
+
+
+Check me out on linkedin.com/in/nguyen98
+
+Art: https://www.instagram.com/fofographs/
 
 <!---
 fofoforever/fofoforever is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
