@@ -1,7 +1,9 @@
 Hi, I’m @fofoforever
 UC Berkeley Alumni with in interest in designs, UI/UX, and data analysis. 
 
-I’m currently learning longboarding, snowboarding, anything boarding. 
+🌴 🌞 🍍 Beachy girly girl and a hobby enthusiast! I’m currently learning longboarding, snowboarding, anything boarding. 
+
+📖 Currently Reading: Norwegian Wood
 
 Check me out on linkedin.com/in/nguyen98 !
 
