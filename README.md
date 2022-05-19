@@ -3,7 +3,7 @@ UC Berkeley Alumni with in interest in designs, UI/UX, and data analysis.
 
 🌴 🌞 🍍 Beachy girly girl and a hobby enthusiast! I’m currently learning longboarding, snowboarding, anything boarding. 
 
-📖 Book at the moment: Norwegian Wood
+📖 Book at the moment: Wild Sheep Chase
 
 Check me out on:
 
